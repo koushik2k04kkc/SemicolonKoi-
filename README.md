@@ -1,4 +1,4 @@
 # SemicolonKoi-
 
 ##
-arijit ami .. tui ke?
+arijit ami
